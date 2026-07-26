@@ -4,7 +4,12 @@ Reading my Carrd is a great way to know me a bit. However, it's becoming long an
  I honestly block freely but my Carrd lists a few ideas on the type of people I *DO* block. My DNI is honestly more of my block list.
 
   I talk about topics in a way for people to understand on multiple levels and doesn't mean I actually *view the topics that way.* I don't look for pointless fights over opinions or facts. Doing so will result in me having a genuine conversation to straight trolling/clowning.
-  
-  Asking me to use AI will also do the same thing as I found AI very faulty with it's information and found it isn't constant with it's answers. Often changing them completely, even giving false information on well known popular medias.
+
+**Example of conversations (That I also don't agree with completely)**: Actual medical terms and explanations for transgenders: I only talk about it that way so the norm can understand and learn too.
+Other medical terms on subjects.
+
+Using old text book terminologies so most people can understand the conversation. It's not because I agree with it. It's just unfortunately how *MOST* people understand things.
+
+  Asking me to use AI because this is how I talk about topics, will also do the same thing; As I found AI very faulty with it's information and found it isn't constant with it's answers. Often changing them completely, even giving false information on well known popular medias.
 
    I can get along with just about anyone unless they give me reasons not to.
